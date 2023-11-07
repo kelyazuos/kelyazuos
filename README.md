@@ -12,6 +12,8 @@
 * 📚 leitora ávida
 * ☕ viciada em café
 * 🐶 Apaixonada por animais 
+* ✝️ Filha do Rei
+
  #
 
 
