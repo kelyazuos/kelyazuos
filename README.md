@@ -9,8 +9,6 @@
 * 🌍 Sou de São Luís, Maranhão
 * 🎓 Estudante de Engenharia da computação na UFMA
 * 🎵 Me perco em músicas
-* 📚 leitora ávida
-* ☕ viciada em café
 * 🐶 Apaixonada por animais 
 * ✝️ Filha do Rei
 
