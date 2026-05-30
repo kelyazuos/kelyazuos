@@ -10,7 +10,7 @@
 * 🎓 Estudante de Engenharia da computação na UFMA
 * 🎵 Me perco em músicas
 * 🐶 Apaixonada por animais 
-* ✝️ Filha do Rei
+
 
  #
 
